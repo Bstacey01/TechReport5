@@ -1,4 +1,4 @@
-Best SteamOS Gaming
+Best Steam OS Gaming
 Steam Deck OLED $525.USD
 
 Best Steam Deck Alternative
